@@ -11,6 +11,6 @@ Episode 1: A Brief History of the Universe
 
 1. The stars are fixed and permanent, they have been in the heavens apparently forever. Joe, tell us when the stars appeared. (What do we know about the chemical composition of the stars. Is this important? So, moving into the area of reality, what influence have the stars had on us?).
 
-2. Moving on to our star, the Sun, and its Solar system. Joe, tell us about the formation of the planets. (Did this involve a change towards complexity? What was reality at this point? Was this a significant event)
+1. Moving on to our star, the Sun, and its Solar system. Joe, tell us about the formation of the planets. (Did this involve a change towards complexity? What was reality at this point? Was this a significant event)
 
-3. Is the existence of planets necessary for life itself? Joe, tell us whether the emergence of living things lead to an increase in complexity. (What about interactions? Do interactions themselves cause an increase in complexity).
+1. Is the existence of planets necessary for life itself? Joe, tell us whether the emergence of living things lead to an increase in complexity. (What about interactions? Do interactions themselves cause an increase in complexity).
