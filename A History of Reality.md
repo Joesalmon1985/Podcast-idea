@@ -13,11 +13,17 @@ Episode 1: A History of Reality
 
 Answer as below
 1: To show the big bang a Tetrahedron surrounded waves of red heat cooling to blue.
+
 2: upon this blue background dotted about black dots with whte rings with one or two white spots on around them for helium & hydrogen.
+
 3: clumps of these black and white objects trapped in 2 half circle bands of yellow at either side of the piece for stars.
+
 4: two yellow lines feeding into a rising massive half circle at the bottom of the page to show a planet.
+
 5: a little tree on the planet with a red apple for life and knowledge.
+
 6: a white square in the top left with black dots chaoticly spread about
+
 7: a black square in the top right with white dots neatly ordered.
 
 
