@@ -12,6 +12,7 @@ Episode 1: A History of Reality
 2. How is it you plan to represent this with a painting?
 
 Answer as below
+
 1: To show the big bang a Tetrahedron surrounded waves of red heat cooling to blue.
 
 2: upon this blue background dotted about black dots with whte rings with one or two white spots on around them for helium & hydrogen.
