@@ -4,7 +4,7 @@ Episode 1: A Brief History of the Universe
 -------------------------------
 
 ### Introduction
-> This first episode covers the history of the universe in brief and how it can be considered to be becoming more complex over time.
+> This first episode covers some ideas around the history of the universe in brief, and Joe's attempts to represent this as an abstract painting.
 
 ### Notes
 1. Joe, Can you give us the back drop to the story that you are about to tell us; that is the broad sweep of reality and what we mean by something's becoming more complex over time?
